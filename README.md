@@ -1,1 +1,0 @@
-# Paldo Project
